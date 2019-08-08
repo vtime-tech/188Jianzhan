@@ -32,3 +32,4 @@
 蓝狗（QQ7640050）
 
 #### 软件著作权证书展示
+![188建站系统软件著作权证书](http://www.188jianzhan.cn/2.10/188JianzhanCopyrightCertificate.jpg)
